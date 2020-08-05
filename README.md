@@ -68,3 +68,14 @@
 То же самое с окружающим миром: начни с себя, покажи пример.
 
 
+  
+
+
+
+  
+
+
+  
+пишет Саша Михайлов для себя  
+ткнуть палочкой: [телеграм](t.me/SashaMikhailov), [фейсбук](https://www.fb.com/sashamikhailovru)  
+почитать ещё https://sashamikhailov.ru/blog/   
