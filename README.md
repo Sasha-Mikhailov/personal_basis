@@ -80,13 +80,15 @@
 
 ## Жизнь — это видеоигра со своими правилами и ачивками
 Навал Равикант
-  
-<br><br><br><br><br>
+
+<br>
 
 # Ссылки: источники и вдохновение
 - Naval Ravikant on Happiness, Reducing Anxiety, Crypto Stablecoins, and Crypto Strategy × [The Tim Ferriss Show ](https://podcasts.apple.com/us/podcast/473-naval-ravikant-on-happiness-reducing-anxiety-crypto/id863897795?i=1000494834273)
 - Десять принципов Артема Горбунова [YouTube](https://www.youtube.com/watch?v=ZMeWeU1Y6PI)
 - Харитон Матвеев про опыт трансформации и жизнь как систему менеджмента ресурсов × [[Подкаст Вани Замесина](https://podcasts.apple.com/ru/podcast/11-%D1%85%D0%B0%D1%80%D0%B8%D1%82%D0%BE%D0%BD-%D0%BC%D0%B0%D1%82%D0%B2%D0%B5%D0%B5%D0%B2-%D0%BF%D1%80%D0%BE-%D0%BE%D0%BF%D1%8B%D1%82-%D1%82%D1%80%D0%B0%D0%BD%D1%81%D1%84%D0%BE%D1%80%D0%BC%D0%B0%D1%86%D0%B8%D0%B8-%D0%B8-%D0%B6%D0%B8%D0%B7%D0%BD%D1%8C-%D0%BA%D0%B0%D0%BA/id1495821833?i=1000505314078)]
+
+<br><br><br><br><br>
 
   
 пишет Саша Михайлов для себя  
